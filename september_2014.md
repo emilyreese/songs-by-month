@@ -21,3 +21,7 @@
 - "Don't Move" (Phantogram)
 
 - "Cut To Black" (Lemaitre)
+
+- "Handshake" (Two Door Cinema Club)
+
+- "Toy Guns" (Tokyo Police Club)
